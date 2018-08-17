@@ -1,1 +1,1 @@
-# this website is created by me click <a href="http://royalbroadband.co.in" target="_blank">here</a>
+# This website is created by me click <a href="https://suryanu.github.io/royalinternet/ " target="_blank">here</a>
